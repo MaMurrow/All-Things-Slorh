@@ -1,2 +1,2 @@
 # All-Things-Sloth
-DISCOVERIES ABOUT SLOTHS AND MORE
+Discoveries about Sloths and more

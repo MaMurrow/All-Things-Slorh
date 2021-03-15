@@ -1,2 +1,2 @@
-# All-Things-Slorh
+# All-Things-Sloth
 DISCOVERIES ABOUT SLOTHS AND MORE
